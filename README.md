@@ -16,4 +16,4 @@ Designer…
 - 📫 How to reach me: wesley.jake@aol.com
 - 🌐 Learn more or hire me at: https://www.j-wesdesign.com
 - 📃 For professional inquiries please visit my LinkedIn here: https://www.linkedin.com/in/jake-wesley/
-- Have a gander at my work here: https://www.behance.net/J-wesDesign
+- 🎨 Have a gander at my work here: https://www.behance.net/J-wesDesign

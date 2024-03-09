@@ -14,4 +14,6 @@ I hope you enjoy my reflections on my journey as a graphic
 Designer…
 
 - 📫 How to reach me: wesley.jake@aol.com
-- Learn more about me and have a look at my work at: https://www.j-wesdesign.com
+- 🌐 Learn more or hire me at: https://www.j-wesdesign.com
+- 📃 For professional inquiries please visit my LinkedIn here: https://www.linkedin.com/in/jake-wesley/
+- Have a gander at my work here: https://www.behance.net/J-wesDesign

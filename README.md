@@ -10,8 +10,7 @@ As my disability has progressed design helped me truly express myself. I use my 
 
 Collage and abstract art simply describe my designs because there are no limits to those methods, whether it is the hand-drawn line, silly characters, or font choices. My ambition is to make a difference and to create effective designs that leave its mark. All of my work is achieved by the use of the Adobe Creative Cloud software. I am also familiar with most design programs as well as traditional tools and media. My work consists of Logo Design, Web Design, Layout and typography, and UI/UX Design. 
 
-I hope you enjoy my reflections on my journey as a graphic 
-Designer…
+I hope you enjoy my reflections on my journey as a Graphic Designer…
 
 - 📫 How to reach me: wesley.jake@aol.com
 - 🌐 Learn more or hire me at: https://www.j-wesdesign.com

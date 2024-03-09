@@ -14,3 +14,4 @@ I hope you enjoy my reflections on my journey as a graphic
 Designer…
 
 - 📫 How to reach me: wesley.jake@aol.com
+- Learn more about me and have a look at my work at: https://www.j-wesdesign.com

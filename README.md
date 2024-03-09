@@ -2,9 +2,9 @@
 
 I'm Jake,
 
-Graphic Design Student with A.F.A. currently obtaining B.Des at Millersville University in Lancaster, Pennsylvania. Studied Engineering at a vocational school and possess 3 computer certifications. Strong Design skills. Very good understanding of Electronics and Computers. Creative team player possesses excellent communication and interpersonal skills with effective time management.
+A Graphic Design Student with an A.F.A. currently obtaining a B.Des at Millersville University in Lancaster, Pennsylvania. Studied Engineering at a vocational school and possess 3 computer certifications. Strong Design skills. Very good understanding of Electronics and Computers. Creative team player possesses excellent communication and interpersonal skills with effective time management.
 
-Was diagnosed with a rare condition called Duchenne Muscular Dystrophy (DMD) at the age of 3. Duchenne is a progressive muscle-wasting disease. "I fell in love with Graphic Design when I was a small child when I first picked up a paintbrush and computer. I saved up to buy my very own computer and art supplies".
+I was diagnosed with a rare condition called Duchenne Muscular Dystrophy (DMD) at the age of 3. Duchenne is a progressive muscle-wasting disease. "I fell in love with Graphic Design when I was a small child when I first picked up a paintbrush and computer. I saved up to buy my very own computer and art supplies".
 
 As my disability has progressed design helped me truly express myself. I use my creativity so others see what goes through others' eyes. To see how they see things differently from different perspectives. I create content that is a reflection of real-life experiences. Graphic and Web Design is a recent pursuit of mine, and it opened my eyes and made me decide that is what I want to do and I want it to be my full-time job. I like to build for the web and make things pretty.
 

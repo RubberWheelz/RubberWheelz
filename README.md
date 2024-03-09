@@ -1,4 +1,5 @@
 ### Hi there 👋
+### I'm Jake,
 
 Graphic Design Student with A.F.A. currently obtaining B.Des at Millersville University in Lancaster, Pennsylvania. Studied Engineering at a vocational school and possess 3 computer certifications. Strong Design skills. Very good understanding of Electronics and Computers. Creative team player possesses excellent communication and interpersonal skills with effective time management.
 
